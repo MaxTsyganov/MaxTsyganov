@@ -61,4 +61,4 @@ I'm currently looking for an opportunity to begin my professional career in DevO
 
 Connect
 
-LinkedIn: https://www.linkedin.com/in/max-tsyganov-a02239216
+LinkedIn: https://www.linkedin.com/in/max-tsyganov
